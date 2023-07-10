@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **davizi96@hotmail.com**
 
-- ⚡ Fun fact **I was born in Quito, Equador and I have two nationalities!**
+- ⚡ Fun fact **I was born in Quito, Ecuador, and have two nationalities!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

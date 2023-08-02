@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **React Native & Astro**
 
-- 📫 How to reach me **davizi96@hotmail.com**
+- 📫 How to reach me **davidbarreirosreyes@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
